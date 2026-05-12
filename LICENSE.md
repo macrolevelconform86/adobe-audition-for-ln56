@@ -1,4 +1,4 @@
-# 
+# premium Adobe Audition for macOS Automation | shortcut-customization + sound-design offers the most advanced Adobe Audition for macOS automation, with shortcut-customization and
 
 
 
